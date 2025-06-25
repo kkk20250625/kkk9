@@ -17,7 +17,7 @@
 
 点击访问：<a href="https://pi456.pages.dev/">黑料社地址</a>
 
-点击访问：<a href="https://hl403.pages.dev/">黑料门</a>
+点击访问：<a href="https://hl403.pages.dev/">黑料门最新</a>
 
 点击访问：<a href="https://pi87.pages.dev/">暗网禁区</a>
 
@@ -31,7 +31,7 @@
 
 点击访问：<a href="https://hl443.pages.dev/">今日黑料</a>
 
-点击访问：<a href="https://hl417.pages.dev/">黑料社独家爆料/a>
+点击访问：<a href="https://hl417.pages.dev/">黑料社独家爆料</a>
 
 点击访问：<a href="https://hl389.pages.dev/">每日分享最新飘雪影院在线观看高清电影</a>
 
@@ -63,4 +63,4 @@ Telegram频道传送门：热门Telegram频道合集，分类清晰，一键直�
 
 聚焦重大娱乐与网红黑料事件，清晰还原每次爆料发展路径，是回顾大瓜、追踪舆情演变的实用工具。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/kkk20250625/kkk9）</span>
